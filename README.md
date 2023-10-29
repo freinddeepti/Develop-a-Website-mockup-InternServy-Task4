@@ -1,4 +1,4 @@
-# Develop-a-Website-mockup-InternServy-Task4
+# Develop-a-Website-mockup-InternSavy-Task4
 🕸️Lockmart Website:-
 https://lockmart1-com.my.canva.site/lockmart1-
 
